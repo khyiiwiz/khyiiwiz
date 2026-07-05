@@ -1,6 +1,1 @@
-            ˗ˏˋ ★ ˎˊ˗
-![Image](https://github.com/user-attachments/assets/c7ba8fa0-d36e-4717-a87a-646f7373c2fe)
-────────────୨ৎ───────────
-
-                . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 <img width="736" height="574" alt="Image" src="https://github.com/user-attachments/assets/afc2ae66-4127-4f36-864d-ba8358c4451a" />
